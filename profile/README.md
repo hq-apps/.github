@@ -2,7 +2,7 @@
 
 ## Hi there 👋
 
-[hqapps.tk](https://hqapps.tk)
+[hqapps.eu](https://hqapps.eu)
 
 
 **Here are some ideas to get you started:**
